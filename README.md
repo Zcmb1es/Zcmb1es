@@ -1,0 +1,7 @@
+-  ꒰ e ㆍ Hi, im @zcmb1es ㆍ ⸝⸝
+- Im a professional minecraft pvp'r [Specifically on Bedrock] [Hive SW & BW]
+- I make custom minecraft hive cosmetics [such as capes, hats, ect] , skinpacks, and textures.
+- 💞️ If you wish to collaborate, I take collabs on skins/skinpacks  ꒰ ୨୧ ꒱ ⸝⸝
+- where you can reach/find me [Email: ZCMB1ES@outlook.com] PlanetMinecraft, & NameMC
+- I go by She/her
+-  Fun fact: Ive played minecraft for 17yrs!
